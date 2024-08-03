@@ -1,11 +1,15 @@
-## Hi there 👋, my name is Arseniy.
+# Hi there 👋, my name is 「 ✦ Arseniy ✦ 」
 
-- 🔭 I’m currently working on HTML and CSS
+### 👨‍💻 I’m currently working on HTML and CSS
 
-- 🌱 I’m currently learning JavaScript
+### 📙 I’m currently learning JavaScript
 
-- 📫 How to reach me?
-  Telegram: https://t.me/senyaplayyt
+### 📧 How to reach me?
+- ➤ Telegram: https://t.me/senyaplayyt
+- ➤ Email: senyaentertainment@yandex.ru
+
+### ⚡ Fun fact: I'm a music lover ⋆.˚✮🎧✮˚.⋆
+
 <!--
 **senyagame/senyagame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

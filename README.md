@@ -2,7 +2,7 @@
 
 ### 👨‍💻 I’m currently working on HTML and CSS
 
-### 📙 I’m currently learning JavaScript
+### 📙 I’m currently learning JavaScript and React
 
 ### 📧 How to reach me?
 - ➤ Telegram: https://t.me/senyaplayyt

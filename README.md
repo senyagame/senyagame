@@ -1,8 +1,8 @@
 # Hi there 👋, my name is 「 ✦ Arseniy ✦ 」
 
 ### 👨‍💻 I’m currently working on HTML, CSS and React
-<!—
-### 📙 I’m currently learning —>
+<!--
+### 📙 I’m currently learning -->
 
 ### 📧 How to reach me?
 - ➤ Telegram: https://t.me/senyaplayyt

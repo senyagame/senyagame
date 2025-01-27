@@ -5,7 +5,7 @@
 ### 📙 I’m currently learning -->
 
 ### 📧 How to reach me?
-- ➤ Telegram: https://t.me/senyaplay
+- ➤ Telegram: @senyaplayyt
 - ➤ Business Email: senyagamesprt@outlook.com
 - ➤ Email: senyaentertainment@yandex.ru
 

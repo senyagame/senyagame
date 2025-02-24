@@ -7,7 +7,7 @@
 ### 📧 How to reach me?
 - ➤ Telegram: @senyaplayyt
 - ➤ Business Email: senyaentertainment@yandex.ru
-- ➤ Email: https://mail.google.com/mail/u/0/#inbox
+- ➤ Email: arseniyantropov3@gmail.com
 
 
 ### ⚡😸 Fun fact: I'm a music lover and cat ⋆.˚✮🎧✮˚.⋆

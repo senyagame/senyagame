@@ -10,7 +10,7 @@
 - ➤ Email: senyaentertainment@yandex.ru
 
 
-### ⚡😸 Fun fact: I'm a music lover and furry ⋆.˚✮🎧✮˚.⋆
+### ⚡😸 Fun fact: I'm a music lover and cat ⋆.˚✮🎧✮˚.⋆
 
 <!--
 **senyagame/senyagame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

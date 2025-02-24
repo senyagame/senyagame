@@ -6,8 +6,8 @@
 
 ### 📧 How to reach me?
 - ➤ Telegram: @senyaplayyt
-- ➤ Business Email: senyagamesprt@outlook.com
-- ➤ Email: senyaentertainment@yandex.ru
+- ➤ Business Email: senyaentertainment@yandex.ru
+- ➤ Email: https://mail.google.com/mail/u/0/#inbox
 
 
 ### ⚡😸 Fun fact: I'm a music lover and cat ⋆.˚✮🎧✮˚.⋆

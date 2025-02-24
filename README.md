@@ -9,6 +9,7 @@
 - ➤ Business Email: senyaentertainment@yandex.ru
 - ➤ Email: arseniyantropov3@gmail.com
 
+### 🌟 Dream: To work at Yandex 
 
 ### ⚡😸 Fun fact: I'm a music lover and cat ⋆.˚✮🎧✮˚.⋆
 

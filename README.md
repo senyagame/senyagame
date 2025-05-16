@@ -1,6 +1,6 @@
 # Hi there 👋, my name is 「 ✦ Arseniy ✦ 」
 
-### 👨‍💻 I’m currently working on HTML, CSS and JS
+### 👨‍💻 I’m currently working on HTML, CSS and JS, React
 <!--
 ### 📙 I’m currently learning -->
 

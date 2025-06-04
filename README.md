@@ -6,8 +6,7 @@
 
 ### 📧 How to reach me?
 - ➤ Telegram: @senyaplayyt
-- ➤ Business Email: senyaentertainment@yandex.ru
-- ➤ Email: arseniyantropov3@gmail.com
+- ➤ Email: arseniyantropov@connect-senya.ru
 
 <h3>🌟 Dream: <a href="https://yandex.ru/jobs?ysclid=m7jcgy99gl132312779" target="_blank">To work at   <img src="https://i.postimg.cc/hPt3vRsk/IMG-20250225-091734.png" alt="Yandex team logo" width="85"/></a>
 </h3>
